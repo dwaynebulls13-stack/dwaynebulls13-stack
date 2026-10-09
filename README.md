@@ -1,4 +1,4 @@
-## Dwayne A Bulls
+ Dwayne A Bulls
 ### Aspiring Cloud Engineer | IT & Technical Support | CompTIA Security+ Certified
 
 I'm an IT and cloud technology professional in training with over 25 years of experience in electronics, manufacturing maintenance, technical troubleshooting, and problem-solving.
